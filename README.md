@@ -1,4 +1,4 @@
-# Random Videos in my downloads folder
+# Random downloads in my downloads folder
 # (*sound is on*)
 # (*ps. if the videos doesn't show, just copy and paste the link to a tab*)
 
