@@ -74,7 +74,7 @@
 
 >**A link to "Subhuman by Cody Matthew Johnson" (click the image)**
 
-[![Subhuman](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRKne7w2yqVppgJ63CcRFsRbziQjQP2e_o1nw&usqp=CAU)](https://www.youtube.com/watch?v=jozqnG_32i0)
+[![Subhuman](https://media.tenor.com/eSpkjacQyokAAAAd/dante-devil-may-cry.gif)](https://www.youtube.com/watch?v=jozqnG_32i0)
 
 ---
 
@@ -92,4 +92,4 @@
 
 > **Genre** - *Metal, Rock (Soft/Heavy)*
 
-[![Bury the Light](https://staticdelivery.nexusmods.com/mods/2751/images/1933/1933-1634568763-858343322.gif)](https://www.youtube.com/watch?v=Jrg9KxGNeJYhttps://staticdelivery.nexusmods.com/mods/2751/images/1933/1933-1634568763-858343322.gif)
+[![Bury the Light]([https://staticdelivery.nexusmods.com/mods/2751/images/1933/1933-1634568763-858343322.gif](https://media.tenor.com/Tz5ax-aQaiMAAAAC/vergil-dmc-vergil.gif))](https://www.youtube.com/watch?v=Jrg9KxGNeJY)
