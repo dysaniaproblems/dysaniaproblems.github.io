@@ -19,7 +19,7 @@
  
 >**A link to "Wake your fury and wait in hell by Akihiko Narita and Casey Edwards" (click the image)**
 
-[![Wake your fury and wait in hell](https://i.imgur.com/CdvY2Q4.jpeg)](https://youtu.be/vt5fpE0bzSY)
+[![Wake your fury and wait in hell](https://media.tenor.com/E3VWjDlkXZ4AAAAC/vergil-reaction-vergil.gif)](https://youtu.be/vt5fpE0bzSY)
 
 ---
 
@@ -38,7 +38,7 @@
 
 > **A link to "Enjoy the taste of despair by Hiromitsu Maeba" (click the image)**
 
-[![Enjoy the taste of despair](https://cdn.prime1studio.com/media/catalog/product/cache/1/small_image/460x460/9df78eab33525d08d6e5fb8d27136e95/u/p/upmdmcv-04_face.jpg)](https://www.youtube.com/watch?v=G9PIHlCZ2MA)
+[![Enjoy the taste of despair](https://media.tenor.com/gFwDuyZH-C4AAAAC/vitale-dmc5.gif)](https://www.youtube.com/watch?v=G9PIHlCZ2MA)
 
 ---
 
@@ -56,7 +56,7 @@
 
 > **A link to "Devil Trigger by Casey Edwards and Ali Edwards" (click the image)**
 
-[![Devil Trigger](https://i.kym-cdn.com/photos/images/original/001/430/934/6ca.gif)](https://www.youtube.com/watch?v=-WpnPSChVRQ)
+[![Devil Trigger](https://media.tenor.com/faOolLxLSssAAAAC/nero.gif)](https://www.youtube.com/watch?v=-WpnPSChVRQ)
 
 ---
 
