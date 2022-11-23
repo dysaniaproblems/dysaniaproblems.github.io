@@ -92,4 +92,4 @@
 
 > **Genre** - *Metal, Rock (Soft/Heavy)*
 
-[![Bury the Light]([https://staticdelivery.nexusmods.com/mods/2751/images/1933/1933-1634568763-858343322.gif](https://media.tenor.com/Tz5ax-aQaiMAAAAC/vergil-dmc-vergil.gif))](https://www.youtube.com/watch?v=Jrg9KxGNeJY)
+[![Bury the Light](https://media.tenor.com/Tz5ax-aQaiMAAAAC/vergil-dmc-vergil.gif)](https://www.youtube.com/watch?v=Jrg9KxGNeJY)
