@@ -19,7 +19,7 @@
  
 >**A link to "Wake your fury and wait in hell by Akihiko Narita and Casey Edwards" (click the image)**
 
-[![Wake your fury and wait in hell](https://media.tenor.com/E3VWjDlkXZ4AAAAC/vergil-reaction-vergil.gif)](https://youtu.be/vt5fpE0bzSY)
+[![Wake your fury and wait in hell](https://media.tenor.com/E3VWjDlkXZ4AAAAC/vergil-reaction-vergil.gif)](https://www.youtube.com/watch?v=52iyr0BJb7U)
 
 ---
 
