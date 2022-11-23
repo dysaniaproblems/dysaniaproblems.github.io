@@ -6,6 +6,7 @@
 
 ## **Wake your fury and wait in hell**
 
+
 > **A song made by Akihiko Narita and Casey Edwards, it plays during the start of Vergil's Mission**
  
 > **MOTIVATION** scale - 6/10
@@ -24,6 +25,7 @@
 ---
 
 ## **Enjoy the taste of despair**
+
 
 > **A song made by Hiromitsu Maeba, it plays during the start of V's mission**
 
@@ -44,6 +46,7 @@
 
 ## **Devil Trigger**
 
+
 > **A song made by Casey Edwards and Ali Edwards, it's Nero's battle theme and plays whenever you're battling**
 
 > **MOTIVATION** scale - 8/10
@@ -62,6 +65,7 @@
 
 ## **Subhuman**
 
+
 > **A song by Cody Matthew Johnson**
 
 > **MOTIVATION** scale - 9/10
@@ -70,7 +74,7 @@
 
 > **Genre** - *Metal, Rock (Heavy)*
 
-> **Year of release** - *August 18, 2021*
+> **Year of release** - *Aug 18, 2021*
 
 >**A link to "Subhuman by Cody Matthew Johnson" (click the image)**
 
@@ -84,6 +88,7 @@
 
 # BURY THE LIGHT BY CASEY EDWARDS AND VICTOR BORBA
 
+
 > **A song by Casey Edwards and Victor Borba**
 
 > **MOTIVATION** scale - 10/10
@@ -91,6 +96,8 @@
 > **Length** - *9 minutes and 43 seconds*
 
 > **Genre** - *Metal, Rock (Soft/Heavy)*
+
+> **Year of release** - *Jan 21, 2021*
 
 >**A link to "Bury the Light by Casey Edwards and Victor Borba" (click the image)**
 
