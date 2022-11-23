@@ -92,4 +92,6 @@
 
 > **Genre** - *Metal, Rock (Soft/Heavy)*
 
+>**A link to "Bury the Light by Casey Edwards and Victor Borba" (click the image)**
+
 [![Bury the Light](https://media.tenor.com/Tz5ax-aQaiMAAAAC/vergil-dmc-vergil.gif)](https://www.youtube.com/watch?v=Jrg9KxGNeJY)
